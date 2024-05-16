@@ -1,0 +1,6 @@
+- 👋 Olá, sou NathanLima
+- 👀 Tenho interesse em aprender novas tecnologias
+- 🌱 Atualmente estou aprendendo web design
+- 💞️ Estou procurando colaborar com projetos web
+- 📫 nth.devc@gmail.com
+- 😄 só existem dois gêneros
